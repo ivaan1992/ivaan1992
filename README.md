@@ -1,4 +1,4 @@
-### Hi there, I'm Ivan Gaona 👨🏻‍💻
+### Hi 😃, I'm Ivan Gaona 👨🏻‍💻 👋🏻
 
 ![contratar_programador](https://user-images.githubusercontent.com/73128809/144904249-cfe13146-abe4-4e27-aa40-f3ca1763a620.jpg)
 
@@ -17,6 +17,7 @@ Before discover the tech world, I was busy in my own little company. So I have e
 I’m looking to collaborate on different kind of projects, because this is the way I learn coding. I'm new in this industry, but I like learn new things and at the same time enjoy the whole process. ✨✨
 
 PS: Sometimes I write texts about me and personal life 📝. 
+
 If you have any question feel free to contact me. 
 
 You can reach me out in my: 
