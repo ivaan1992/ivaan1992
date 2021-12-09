@@ -9,7 +9,7 @@ What can I say about me? 🤔
 Right now I'm a full time student. My goal is to become a software developer 👨🏻‍💻.
 
 
-I'm in the college rigth now taking 2 bachelor's degrees 🤓. I'm coursing systems engineering and I'm about to finish business management career, but I found my passion when I started coding when the COVID attacked. I also, I'm a Microverse student, but in this school I learn coding by making my own projects, which is amazing. I'm currently learning JavaScript, and Java but I'm planning start learning Python, C#, C++, PHP. 
+I'm in the college rigth now taking 2 bachelor's degrees 🤓. I'm coursing systems engineering and I'm about to finish business management career, but I found my passion when I started coding. I also, I'm a Microverse student, but in this school I learn coding by making my own projects, which is amazing. I'm currently learning JavaScript, and Java but I'm planning start learning Python, C#, C++, PHP. 
 
 
 Before discover the tech world, I was busy in my own little company. So I have experience leading people and working with all kind of people. At the same time I really like to try new things. I also like to meet new people. I'm friendly and if you have some feedback about me, or my projects, feel free to let me know how can I improve. 
