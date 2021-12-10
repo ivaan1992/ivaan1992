@@ -14,7 +14,7 @@ I'm in the college rigth now taking 2 bachelor's degrees 🤓. I'm coursing syst
 
 Before discover the tech world, I was busy in my own little company. So I have experience leading people and working with all kind of people. At the same time I really like to try new things. I also like to meet new people. I'm friendly and if you have some feedback about me, or my projects, feel free to let me know how can I improve. 
 
-I’m looking to collaborate on different kind of projects, because this is the way I learn coding. I'm new in this industry, but I like learn new things and at the same time enjoy the whole process. ✨✨
+I’m looking to collaborate on different kind of projects, because this is the way I learn coding. I'm new in this industry, but I really like learn new things and at the same time enjoy the whole process of making new projects. ✨✨
 
 PS: Sometimes I write texts about me and personal life 📝. 
 
