@@ -1,4 +1,4 @@
-# Hi 😃, I'm Ivan Linares 👨🏻‍💻 👋🏻
+# Hi 👋, I'm Ivan Linares 👨🏻 
 
 
 ## What can I say about me? 🤔
@@ -11,7 +11,7 @@ I found my passion when I started coding, that's why I decided join Microverse. 
 - Java 
 - Python.
 
-I’m looking for collaborate on different kind of projects, because this is the way I learn coding. I'm new in this industry, but I really like learn new things and at the same time enjoy the whole process of making new projects. ✨✨
+I’m looking for collaborate on different kind of projects, because this is the way I learn coding. I'm new in this industry, but I really like learn new things and at the same time enjoy the whole process of making new projects.
 
 I'm friendly and if you have some feedback about me, or my projects, feel free to let me know how I can improve. 
 
