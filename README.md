@@ -19,7 +19,7 @@ If you have any question feel free to contact me:
  
 ![contact](https://user-images.githubusercontent.com/73128809/146063774-f7d57726-3f9d-4352-aeac-a554075dc406.png)
 
-You can also find me in my social media: 
+You can also reach me out on my social media: 
 
 - <a href="https://twitter.com/ivangaona92">Twitter</a>
 
