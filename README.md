@@ -17,7 +17,8 @@ I'm friendly and if you have some feedback about me, or my projects, feel free t
 
 If you have any question feel free to contact me:  
  
-![contact](https://user-images.githubusercontent.com/73128809/146063774-f7d57726-3f9d-4352-aeac-a554075dc406.png)
+![Mi proyecto1](https://user-images.githubusercontent.com/73128809/146068457-0aee3c23-2b4a-48f3-b0d8-612761ebd7f0.png)
+
 
 You can also reach me out on my social media: 
 
