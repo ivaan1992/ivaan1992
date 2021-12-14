@@ -20,11 +20,4 @@ If you have any question feel free to contact me:
 ![Mi proyecto1](https://user-images.githubusercontent.com/73128809/146068457-0aee3c23-2b4a-48f3-b0d8-612761ebd7f0.png)
 
 
-You can also reach me out on my social media: 
-
-- <a href="https://twitter.com/ivangaona92">Twitter</a>
-
-- <a href="https://www.instagram.com/ivan_gaona/?hl=es-la">Instagram</a>
-
-- <a href="https://ivan-gaona.tumblr.com/">Tumblr</a>
 
