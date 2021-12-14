@@ -1,4 +1,4 @@
-# Hi 👋, I'm Ivan Linares 👨🏻 
+# Hi 👋🏻, I'm Ivan Linares 🧔🏻‍ 
 
 
 ## What can I say about me? 🤔
