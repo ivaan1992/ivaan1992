@@ -8,7 +8,7 @@
 ## 🧔🏻‍ About Me 
 - Becoming a fullstack developer.
 - Passionate for coding. 
-- Love learn new things. 
+- Love to learn new things. 
 - Microverse student.
 - Looking for new opportunities as a software developer.
 
