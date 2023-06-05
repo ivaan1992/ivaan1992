@@ -13,6 +13,5 @@ If you have an interesting project in mind or would like to give me feedback on 
 
 # 👨🏻‍💻 Contact Me
 - ✉️ ivaan.lg.92@gmail.com
-- 🖇️ <a href="https://www.linkedin.com/in/ivan-linares-gaona/">Linkedin </a>
-- 📱 +52 2212408250
+- 💻 <a href="https://www.linkedin.com/in/ivan-linares-gaona/">Linkedin </a>
 
